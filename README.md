@@ -37,9 +37,38 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A yong mans inquisition, or triall VVhereby all young men (as of all ages) may know how to redresse 
+
+1. To the most worthy, and
+zealous of Gods trueth, the Senate
+and Citie of Aberdene, together
+with the painefull, and faithfull
+Pastours of the same, all grace
+and peace from aboue, constancie in the
+puritie of the trueth, ioy of Gods spirit
+here, and eternall ioy, glorie, and happinesse,
+with the same spirit in
+the world to come,
+Amen.
+
+1. TO THE THREE
+Right worshipfull Brethren, Sir
+Iohn Sheffeeld, Knight; Master
+Edward and Master William Sheffeeld,
+sonnes to the truely, noble, and right honourable,
+the Lord Sheffeeld, Lord President
+of Yorke, and one of his Maiesties
+most honourable order of the Garter:
+all encrease of true vertue, honour,
+and happinesse here, and eternall
+felicitie with Christ
+for euer hereafter.
+
 #####Body#####
-A yong mans inquisition, or triall VVhereby all young men (as of all ages) may know how to redresse 
+
+1. A YOVNG MANS
+INQVISITION
+or Triall.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
